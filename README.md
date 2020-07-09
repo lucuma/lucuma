@@ -1,1 +1,1 @@
-# lucuma
+# Your friendly neighborhood innovation company
